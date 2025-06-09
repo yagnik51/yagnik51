@@ -19,8 +19,8 @@ I'm a Front-End Developer with 9 months of experience in building clean, respons
 - More projects coming soon...
 
 ## 📫 Let's Connect:
-- **Email:** your.email@example.com
-- **LinkedIn:** [Your LinkedIn Link](#)
+- **Email:** yagniksadhu5751@gmail.com
+- **LinkedIn:** []
 
 ---
 
